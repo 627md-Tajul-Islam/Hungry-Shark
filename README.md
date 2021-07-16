@@ -1,1 +1,1 @@
-Live:https://627md-tajul-islam.github.io/Galaxy/
+Live: https://627md-tajul-islam.github.io/Galaxy/
